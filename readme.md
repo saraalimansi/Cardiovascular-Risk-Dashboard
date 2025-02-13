@@ -30,4 +30,4 @@ This project was an exciting journey, from **data collection and cleaning** to *
 🚀 Excited to explore more **data-driven solutions**!  
 
 ---  
-**🔗 Connect with me on LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/sarah-ali-6457ba329/)  
+**🔗 Connect with me on LinkedIn**: [My LinkedIn Profile](https://www.linkedin.com/in/sarah-ali-6457ba329/)  
